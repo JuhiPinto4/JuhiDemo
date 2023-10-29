@@ -1,2 +1,2 @@
 # JuhiDemo
-Author - Juhi Pinto
+Author - Juhi Pinto (Jhi)
